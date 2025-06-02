@@ -1,2 +1,2 @@
-![Screenshot (18)](https://github.com/user-attachments/assets/dc5dce2c-2b2d-4be0-8dd3-2d6298990194)
-![Screenshot (19)](https://github.com/user-attachments/assets/01d76972-d234-4f6f-8ec5-147731453b25)
+![Screenshot (18)](https://github.com/user-attachments/assets/bb34d1a8-c9dc-47c7-b8ff-a535448cf8e7)
+![Screenshot (19)](https://github.com/user-attachments/assets/5b617584-da6b-401f-886e-ba1fe7c9ccf9)
